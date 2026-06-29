@@ -1,4 +1,4 @@
-#  
+#  run for brainrots Script updated offers the most advanced run for brainrots Script, with no clip and auto-collect. Perfect for dominating any match.
 
 
 
